@@ -1,0 +1,1 @@
+# Neww-style-page-idea-by-claude-product-page
